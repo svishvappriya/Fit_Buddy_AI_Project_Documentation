@@ -1,0 +1,1 @@
+# Fit_Buddy_AI_Project_Documentation
